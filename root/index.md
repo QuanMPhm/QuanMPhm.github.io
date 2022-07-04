@@ -1,1 +1,1 @@
-This price of power is love
+Love is not love
