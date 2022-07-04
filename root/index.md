@@ -1,0 +1,1 @@
+This price of power is love
